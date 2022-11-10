@@ -1,5 +1,5 @@
 
-09-11-22
+09-11-22 
 
 __[1] David en su Vejez, Adonías & el rey Salomón__
 
@@ -12,4 +12,4 @@ Mientras Adonías celebraba, Salomon fue ungido y nombrado rey de Israel y Juda 
 > Reflexion: David fue un buen rey, al cumplir un juramento que habia previamente hecho y al actuar ante la adversidad. El enemigo entreteje planes en las sombras pero el SEÑOR respalda lo que junto a el se a jurado. Por otro lado, `Salomon honro su posición` perdonando la vida de el necesio de su hermano: hay mas grandeza en la misericordia que en el señalamiento y en la sanción.
 
 ---
-__[2] __
+__[2] Ultimas Instrucciones de David__
