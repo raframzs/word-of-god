@@ -24,6 +24,6 @@ Debo tener tiempo para ayunar, orar para recibir unción.
 > # Proverbios 3
     
     9 Honra al Señor con tus riquezas
-        y con lo mejor de todo lo que produces.
+    y con lo mejor de todo lo que produces.
     10 Entonces él llenará tus graneros,
-        y tus tinajas se desbordarán de buen vino.
+    y tus tinajas se desbordarán de buen vino.
