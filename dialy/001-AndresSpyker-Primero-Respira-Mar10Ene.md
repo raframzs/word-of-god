@@ -7,12 +7,17 @@ _Lo que el padre quiere yo lo pido para mi y yo recibire la unición para crearl
 
 > # Santiago 4 
 
-    2 Desean lo que no tienen, entonces traman 
-    y hasta matan para conseguirlo. Envidian lo que otros 
-    tienen, pero no pueden obtenerlo, por eso luchan 
+    2 Desean lo que no tienen, entonces 
+    traman y hasta matan para conseguirlo. 
+    Envidian lo que otros tienen, pero no 
+    pueden obtenerlo, por eso luchan 
     y les hacen la guerra para quitárselo. 
-    Sin embargo, no tienen lo que desean porque no se lo piden a Dios. 
-    3 Aun cuando se lo piden, tampoco lo reciben porque lo piden con malas intenciones: desean solamente lo que les dará placer.
+    Sin embargo, no tienen lo que desean 
+    porque no se lo piden a Dios. 
+    3 Aun cuando se lo piden, tampoco lo
+    reciben porque lo piden con malas 
+    intenciones: desean solamente lo que 
+    les dará placer.
 
 Debo tener tiempo para ayunar, orar para recibir unción.
 
